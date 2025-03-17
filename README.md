@@ -11,7 +11,7 @@
 
 - 💬 Puedes preguntarme sobre **JavaScript, Python, SQL**
 
-- 📫 Contáctame a **claritapantoja36@gmail.com**
+- 📫 Contáctame a **clara.espinosap@gmail.com**
 
 - 📄 Conoce sobre mi experiencia [https://flowcv.com/resume/sidkq329ujse](https://flowcv.com/resume/sidkq329ujse)
 
