@@ -15,7 +15,7 @@
 
 - 📄 Conoce sobre mi experiencia [https://flowcv.com/resume/sidkq329ujse](https://flowcv.com/resume/sidkq329ujse)
 
-- ⚡ Fun fact **Me encanta la música y soy fanática del fútbol**
+- ⚡ Fun fact **Me encanta el fútbol**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
